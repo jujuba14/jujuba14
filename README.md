@@ -4,6 +4,6 @@
 
   - Estou fazendo Alura, por causa da escola mesmo 🥰
   - Vou usa isso aqui pra organizar algumas coisas.
-  - Mal sei mexer no celular, imagina nisso, então caso de algo errado ignorem. 
+  - Mal sei mexer no celular, imagina nisso aqui, então caso de algo errado ignorem. 
   - Não julgue os coleguinhas, se não irei me estressar. ❤️‍🩹
 
