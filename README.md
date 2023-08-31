@@ -1,4 +1,4 @@
-  ### Boas vindas ao meu perfil 🍒🏳️‍🌈
+  ### Bem vindas ao meu perfil 🍒🏳️‍🌈
    
    Olá, meu nome é Julia.💜
 
